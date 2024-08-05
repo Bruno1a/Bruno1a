@@ -1,6 +1,6 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 💙
 
-Meu nome é Bruno Amorim
+Meu nome é Bruno Amorim 🥇👨‍🦱
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
@@ -12,4 +12,5 @@ eopaix.nada.ainda@gmail.com
 
 @Brunoamorim
 
-![descrição do GIF](link GIF do Tenor)
+![](https://i.gifer.com/2tQ1.gif)
+
