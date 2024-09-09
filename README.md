@@ -12,5 +12,6 @@ eopaix.nada.ainda@gmail.com
 
 @Brunoamorim
 
-![(https://i.gifer.com/2tQ1.gif)]
+!![](https://tenor.com/bRKh2.gif)
+
 
