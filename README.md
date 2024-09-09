@@ -12,6 +12,6 @@ eopaix.nada.ainda@gmail.com
 
 @Brunoamorim
 
-!![](https://tenor.com/bRKh2.gif)
-
+!![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3B6dXEzY3dkeHRzMDllbXhsMjg3YjFiZTRobjJoMHNhd3ZhYjJ3ZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/xT1XGVp95GDPgFYmUE/giphy.gif
+)
 
